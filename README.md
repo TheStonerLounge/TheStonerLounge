@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MrChronicGaming
+- 👀 I’m interested in FiveM
+- 🌱 I’m currently learning how to run a popular server
+- 💞️ I’m looking to collaborate on making server great again
